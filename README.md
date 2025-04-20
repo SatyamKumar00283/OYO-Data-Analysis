@@ -45,4 +45,4 @@ OYO CASE STUDY55.pptx: Presentation summarizing data analysis and insights.
 👨‍💻 Author
 Satyam Kumar
 📧 kumarsatyam00283@gmail.com
-🔗 LinkedIn
+🔗 Linked - www.linkedin.com/in/satyam2006
